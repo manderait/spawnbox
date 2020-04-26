@@ -46,11 +46,11 @@ Feel free to send me suggestions what to include more. I might be releasing thes
 If you want to contribute to this project feel free to contact me:
 
 
-- E-mail
+- E-mail: info@manderait.com
 
-- LinkedIn
+- LinkedIn: https://www.linkedin.com/in/jordydemuijnk>
 
-- Twitter
+- Twitter: https:/www.twitter.com/manderait
 
 Happy VM'ing!
 
